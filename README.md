@@ -1,0 +1,1 @@
+# Bir_Boyutta_Hareket_01
